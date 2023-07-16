@@ -1,0 +1,2 @@
+# sumbasurganyaNTT
+trisno
